@@ -1,0 +1,1 @@
+Better than an empty page.
